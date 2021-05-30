@@ -1,3 +1,4 @@
-# "shyt"
-I like programming python and sometimes html with CSS 
-I want to learn more about programming and big progect
+Всем привет меня  кого не видел
+Мне интересно программирование во всех его обличиях и компонентах, но больше всего я базируюсь на python, html, css and javascript. 
+Меня можно найти в телеграме по ссылке https://t.me/god_of_jakers
+Если есть дело то могу помочь 
